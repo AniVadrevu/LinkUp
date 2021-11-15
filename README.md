@@ -7,4 +7,4 @@ Kanye truly is interesting
 3. I think his music is ok sometimes
 4. Kanye is weird sometimes too
 ***Imagine Kanye became president***
-**We would all be *screwed***
+*We would all be **screwed***
