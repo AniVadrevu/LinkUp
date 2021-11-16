@@ -13,6 +13,6 @@ McDonald's is an American fast food company, founded in 1940 as a restaurant ope
 * McDonald's generated a total revenue of 19.21 billion U.S. dollars in 2020.
 * As of 2021, McDonald's has a brand value of 154.92 billion U.S. dollars.
 * McDonald's operated and franchised a total of 39,198 restaurants worldwide in 2020.
-* McDonald's is banned in many countries, such as Albania, Sudan, Belize, Cambodia, and Iceland. 
+* McDonald's is banned in many countries, such as Albania, Cambodia, Iceland, Belize, and Sudan. 
 
 
