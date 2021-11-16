@@ -6,7 +6,7 @@
 
 > Some things about the Olive Garden: 
 
-Olive Garden is an American casual dining restaurant chain specializing in Italian-American cuisine. Olive Garden restaurants in North America
+Olive Garden is an American casual dining restaurant chain specializing in Italian-American cuisine. There are 875 Olive Garden restaurants in North America, and Olive Garden continues to be successful to this day.
 
 > Positives about the Olive Garden: 
 1. They have very good food, like the 5 cheese fonduta and bread, their unlimited breadsticks and eggplant parmigiana.
