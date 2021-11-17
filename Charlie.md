@@ -1,4 +1,4 @@
-# The Most Popular Restaurant in the US
+# The Most Popular Restaurant in the World
 
 ## McDonald's
 
