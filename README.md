@@ -4,4 +4,4 @@
 
 [Mohamed A on Five Guys](fiveguys.md)
 
-[Kyan J on Redstone](BestRestaurants.md)
+[Kyan J on Redstone and Wildfire](BestRestaurants.md)
